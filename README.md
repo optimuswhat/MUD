@@ -1,1 +1,1 @@
-# MUD
+# MUD IS NOT EDIBLE
